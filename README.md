@@ -1,4 +1,30 @@
-## Hi there 👋
+<p align="center" dir="auto">
+<sub>call me izu or nathan </sub>
+
+<p align="center" dir="auto">
+<img src="https://i.postimg.cc/9QLvYbbm/Untitled533-20250920090841.png" style="max-width: 100%; "></p>
+
+<p align="center" dir="auto">
+<sub>majjor midoriya kin . <b><ins>AUDHD.</ins></b> sign ata! </sub>
+
+pls b my friend!
+
+
+<!--
+**dynaloser/dynaloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
+
 
 <!--
 **zukuloser/zukuloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
