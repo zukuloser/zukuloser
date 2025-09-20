@@ -1,11 +1,11 @@
 <p align="center" dir="auto">
-<sub>call me izu or nathan </sub>
+<sub>call me nathan or dex</sub>
 
 <p align="center" dir="auto">
 <img src="https://i.postimg.cc/9QLvYbbm/Untitled533-20250920090841.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<sub>majjor midoriya kin . <b><ins>AUDHD.</ins></b> sign ata! </sub>
+<sub>i love katsuki bakugo more than life . <b><ins>AUDHD.</ins></b> sign ata! </sub>
 
 pls b my friend!
 
